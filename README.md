@@ -1,4 +1,4 @@
-# FroxXyyy-s-Osu-Skins
+# Information
 Original and mixed skins that I created.
 
 Please contact me on Discord (FroxXyyy#9066) or via. Osu! DMs if links do not work!
