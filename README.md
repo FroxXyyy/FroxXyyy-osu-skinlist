@@ -1,5 +1,5 @@
 # Information
-Original and mixed skins that I created.
+This is a GitHub to download original and mixed skins that I created. If you want to mix my skins or use my skin as reference, just to upload it on other websites, please leave a credit to the original work. Or I will hate you.
 
 Please contact me on Discord (FroxXyyy#9066) or via. Osu! DMs if links do not work!
 
